@@ -54,3 +54,18 @@ Grip Fast® UltraDeck T-Clip® - 100 Count (Model Number: C043317 Menards ® SKU
 AC2® 2 x 4 x 10' #2 Prime Ground Contact Green Pressure Treated Lumber is $6.85 after rebate.  I would need 2 of these totaling $13.70 after rebate. 
 
 Total project cost = $83.33 + $26.69 + $13.70 = $123.72 after rebate.  
+
+## FB Marketplace
+
+Just saw this from M'town on FB Marketplace...  
+- 30.5" sections (33 available) $ 3 ea
+- These are 5-1/8" wide. 
+
+For my tub surround...
+80" / 5.125" = 15.61 boards
+32" / 5.125" = 6.24 boards
+
+So the full surround using part of one 30.5" board would require...  28 boards, there are 33 available.  
+
+Cost for the entire bundle would be $99, a savings (with considerable surplus left for other projects) of $11.  
+
